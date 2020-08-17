@@ -4,4 +4,3 @@ I'm a 17 y/o (she/her) tackling postpartum hemorrhage in Jigawa, Nigeria. Previo
 
 You can reach me on email at shifra@hey.com :D
 
-![Alt Text](https://tenor.com/bc4In.gif)
